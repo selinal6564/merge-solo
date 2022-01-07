@@ -1,4 +1,4 @@
-I
+We
 like
 many
 songs
